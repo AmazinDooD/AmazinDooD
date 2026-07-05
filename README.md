@@ -1,2 +1,14 @@
-𝙃𝙚𝙡𝙡𝙤, 𝙄'𝙢 𝘼𝙢𝙖𝙯𝙞𝙣𝘿𝙤𝙤𝘿.
-𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙔𝙤𝙪𝙏𝙪𝙗𝙚 𝙬𝙝𝙚𝙧𝙚 𝙄 𝙤𝙘𝙘𝙖𝙨𝙞𝙤𝙣𝙖𝙡𝙡𝙮 𝙪𝙥𝙡𝙤𝙖𝙙 𝙫𝙞𝙙𝙚𝙤𝙨 (@𝙎𝙤𝙢𝙚𝙍𝙖𝙣𝙙𝙤𝙢𝙂𝙪𝙮𝙒𝙞𝙩𝙝𝙄𝙣𝙩𝙚𝙧𝙣𝙚𝙩)
+![A complex fractal black-and-white background image, with a table as the central focal point, glowing and in colour.](https://yt3.googleusercontent.com/BGDm4pYwbx5mdqvEeZgsVMWP2ucRuPgW-h33OwuAehTGKqTyhH_Ly93frrg9z1ydqryMnDDM9kE=w1707-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj#)
+# Hiya! I'm AmazinDooD!
+> I'm just some random guy with internet.  
+\- Me, 2025
+
+I started programming when I was young *asf* and I have only amassed many more unfinished projects from then!  
+I like:  
+- Geometry Dash
+- Lua
+- Balatro modding
+- White Monster
+- Wearing "programmer socks"  
+  
+If you like Geometry Dash too, you should subscribe to my youtube channel [here!](https://youtube.com/@SomeRandomGuyWithInternet)
